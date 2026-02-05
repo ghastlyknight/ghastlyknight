@@ -17,7 +17,7 @@
 <ins><b><em><tr><td><br>  
 <p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=RATINGS&color=fc0fc0&abbreviated=true"></em></b></ins>
 
-<a href="https://rentry.co/mattengardee"><img src="https://files.catbox.moe/knpda7.gif"></a> 
+<a href="https://rentry.co/otororo"><img src="https://files.catbox.moe/knpda7.gif"></a> 
 🠈 read please
 
 ***"What is your name?"***
