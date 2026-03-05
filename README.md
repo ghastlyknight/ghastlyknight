@@ -1,4 +1,4 @@
-<p align="center"> <ins><b><em><tr><td><br>METTATON'S DIARY</em></b></ins>
+<p align="center"> <ins><b><em><tr><td><br>wip..</em></b></ins>
 
    󠀿󠀿󠀿󠀿️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://www.picmix.com/pic/download?picId=11847964&key=9e3db)
 
