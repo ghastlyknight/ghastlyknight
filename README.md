@@ -48,10 +48,8 @@ uhm i dont know what to else fit in here lmao
    lara if you're seeing this i'll pluck you(/pos) watch out
  
  ![](https://media1.tenor.com/m/SoD7_nT5-_4AAAAC/dandys-world-dandy.gif)
->[!CAUTION]
->my git is not regularly updated so if you want me to either change/remove you then please contact me either on discord (@/anglwngs.wav) or ponytown
-> [!CAUTION]
-> Advises about risks or negative outcomes of certain actions.
+>DISCLAIMER
+>my git is not regularly updated so if you want me to either change/add or remove you then please contact me either on discord (@/anglwngs.wav) or ponytown
 
 
 </p>
