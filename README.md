@@ -1,6 +1,6 @@
 <p align="center"> <ins><b><em><tr><td><br>wip..</em></b></ins>
 
-   󠀿󠀿󠀿󠀿️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://www.picmix.com/pic/download?picId=11847964&key=9e3db)
+   󠀿󠀿󠀿󠀿️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/1/1c/Absolute_Cinema_Twisted_Dandy.png/revision/latest/scale-to-width-down/1000?cb=20251107013850)
 
 <p align="center">$\color{#fc0fc0}{\textsf{˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.}}$
    
