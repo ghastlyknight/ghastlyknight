@@ -17,12 +17,9 @@
 <ins><b><em><tr><td><br>  
 <p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=RATINGS&color=A0BAA4&abbreviated=true"></em></b></ins>
 
-<a href="https://rentry.co/otororo"><img src="https://files.catbox.moe/knpda7.gif"></a> 
+<a href="https://rentry.co/otororo"><img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/4green/33.gif"></a> 
 🠈 read please
 
-wip....
-
-<img width="100" height="552" alt="image" src="https://github.com/user-attachments/assets/e525f4d9-844b-40a2-9ad3-48f95d231dc4" />
 
 
 </p>
