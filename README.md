@@ -1,10 +1,10 @@
-<p align="center"> <ins><b><em><tr><td><br>wip..</em></b></ins>
+<p align="center"> <ins><b><em><tr><td><br>❝𝙄 𝙣𝙚𝙫𝙚𝙧 𝙘𝙡𝙖𝙞𝙢𝙚𝙙 𝙩𝙤 𝙗𝙚 𝙖 𝙨𝙖𝙞𝙣𝙩.❞</em></b></ins>
 
    󠀿󠀿󠀿󠀿️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/1/1c/Absolute_Cinema_Twisted_Dandy.png/revision/latest/scale-to-width-down/1000?cb=20251107013850)
 
-<p align="center">$\color{#fc0fc0}{\textsf{˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.}}$
+<p align="center">$\color{#A0BAA4}{\textsf{❀*ੈ.　˚✦　.  ✿ 　　˚　　 ❀　　*　˚　 　❀　✦　˚ 𑁍༘⋆}}$
    
-<p align="center">$\color{#fc0fc0}{\textsf{　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　 ✦}}$
+<p align="center">$\color{#A0BAA4}{\textsf{˚❀　.　˚　　✦　　✿　.　˚　. 　 ˚　✿.　˚　　❀}}$
 
 
    <div align="center">
