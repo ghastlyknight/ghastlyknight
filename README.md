@@ -17,7 +17,7 @@
    <br>
 <p align="left">
 <ins><b><em><tr><td><br>  
-<p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=tapes&color=A0BAA4&abbreviated=true"></em></b></ins>
+<p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=tapes-collected&color=A0BAA4&abbreviated=true"></em></b></ins>
 
 <a href="https://rentry.co/otororo"><img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/4green/44.gif"></a> 
 🠈 basic information about me
