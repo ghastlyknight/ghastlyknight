@@ -17,7 +17,7 @@
    <br>
 <p align="left">
 <ins><b><em><tr><td><br>  
-<p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=RATINGS&color=A0BAA4&abbreviated=true"></em></b></ins>
+<p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=tapes&color=A0BAA4&abbreviated=true"></em></b></ins>
 
 <a href="https://rentry.co/otororo"><img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/4green/44.gif"></a> 
 🠈 basic information about me
@@ -48,7 +48,8 @@ uhm i dont know what to else fit in here lmao
    lara if you're seeing this i'll pluck you(/pos) watch out
  
  ![](https://media1.tenor.com/m/SoD7_nT5-_4AAAAC/dandys-world-dandy.gif)
-
+> [!CAUTION]
+> my git is not regularly updated so if you want me to either change/remove you then please contact me either on discord (@/anglwngs.wav) or ponytown
 
 
 </p>
