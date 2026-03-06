@@ -37,7 +37,11 @@ uhm i dont know what to else fit in here lmao
 <p align="left">
 <ins><b><em><tr><td><br>SPECIAL PEOPLE ROLLCALL!!</em></b></ins> 
 
-   <a href="https://github.com/balloonfruits"><img src="@balloonfruits"></a>, <a href="https://github.com/L0V3F00L"><img src="@L0V3F00L"></a>, wip..
+   cake, yue/aqua, kat 
+   
+   elysia, cookie, setsuna, crush, lazy, kitty and so much more lovely people
+
+   lara if you're seeing this i'll pluck you(/pos) watch out
  
  ![](https://media1.tenor.com/m/SoD7_nT5-_4AAAAC/dandys-world-dandy.gif)
 
