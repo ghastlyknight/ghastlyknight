@@ -17,8 +17,12 @@
 <ins><b><em><tr><td><br>  
 <p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=RATINGS&color=A0BAA4&abbreviated=true"></em></b></ins>
 
-<a href="https://rentry.co/otororo"><img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/4green/33.gif"></a> 
-🠈 read please
+<a href="https://rentry.co/otororo"><img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/4green/44.gif"></a> 
+🠈 basic information about me
+
+online family can feel free to call me matt or dolly.
+my interests haunt me like a ghost, always striking me before i even know what's going on
+uhm i dont know what to else fit in here lmao
 
 
 
@@ -31,10 +35,10 @@
 <summary></summary>
    <br>
 <p align="left">
-<ins><b><em><tr><td><br>"but nobody came..."</em></b></ins> 
+<ins><b><em><tr><td><br>SPECIAL PEOPLE ROLLCALL!!</em></b></ins> 
 
-   
-emotional support dog ❯❯❯❯ ![](https://i.pinimg.com/originals/92/9f/1a/929f1a3d2b82a49851b2c2e63f8c55dc.gif)
+   wip.
+ ![](https://media1.tenor.com/m/SoD7_nT5-_4AAAAC/dandys-world-dandy.gif)
 
 
 
