@@ -30,14 +30,15 @@ uhm i dont know what to else fit in here lmao
 </details>
    <div align="right">
       <br>
-   <div align="right">
+   <div align="center">
 <details>
 <summary></summary>
    <br>
 <p align="left">
 <ins><b><em><tr><td><br>SPECIAL PEOPLE ROLLCALL!!</em></b></ins> 
 
-   wip.
+   <a href="https://github.com/balloonfruits"><img src="@balloonfruits"></a>, <a href="https://github.com/L0V3F00L"><img src="@L0V3F00L"></a>, wip..
+ 
  ![](https://media1.tenor.com/m/SoD7_nT5-_4AAAAC/dandys-world-dandy.gif)
 
 
