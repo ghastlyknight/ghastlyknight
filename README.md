@@ -41,7 +41,7 @@ uhm i dont know what to else fit in here lmao
 <p align="left">
 <ins><b><em><tr><td><br>SPECIAL PEOPLE ROLLCALL!!</em></b></ins> 
 
-   cake, yue/aqua, kat 
+   cake, elijah, kat 
    
    elysia, cookie, setsuna, crush, lazy, kitty and so much more lovely people
 
