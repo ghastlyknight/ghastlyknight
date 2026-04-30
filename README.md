@@ -1,6 +1,6 @@
 <p align="center"> <ins><b><em><tr><td><br>❝𝙄 𝙣𝙚𝙫𝙚𝙧 𝙘𝙡𝙖𝙞𝙢𝙚𝙙 𝙩𝙤 𝙗𝙚 𝙖 𝙨𝙖𝙞𝙣𝙩.❞</em></b></ins>
 
-   󠀿󠀿󠀿󠀿️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="500" height="600" alt="image" src="https://github.com/user-attachments/assets/9509b4a9-bafd-4e61-9b78-7aa2cfb73826" />
+<p align="center"> <img width="500" height="600" alt="image" src="https://github.com/user-attachments/assets/9509b4a9-bafd-4e61-9b78-7aa2cfb73826" />
 
 
 
