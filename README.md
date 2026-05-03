@@ -19,7 +19,7 @@
 <ins><b><em><tr><td><br>  
 <p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=total+tapes+collected&color=A0BAA4&abbreviated=true"></em></b></ins>
 
-<a href="https://rentry.co/otororo"><img src="https://i.postimg.cc/SKXHgN74/missed.gif"></a> 
+<a href="https://rentry.co/brutalizeme"><img src="https://i.postimg.cc/SKXHgN74/missed.gif"></a> 
 🠈 basic information about me
 
 online family can feel free to call me matt or dolly.
