@@ -44,9 +44,9 @@ uhm i dont know what to else fit in here lmao
    lav my friends
  
  ![](https://media1.tenor.com/m/SoD7_nT5-_4AAAAC/dandys-world-dandy.gif)
-### Socials
+### most active socials
 
->discord is stolenbasket.
+>discord is stolenbasket. insta is anglwngs.wav
 
 
 </p>
