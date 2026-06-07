@@ -39,14 +39,14 @@ uhm i dont know what to else fit in here lmao
 <summary></summary>
    <br>
 <p align="left">
-<ins><b><em><tr><td><br>SPECIAL PEOPLE ROLLCALL!!</em></b></ins> 
+<ins><b><em><tr><td><br>dandy squish</em></b></ins> 
 
    lav my friends
  
  ![](https://media1.tenor.com/m/SoD7_nT5-_4AAAAC/dandys-world-dandy.gif)
-### DISCLAIMER!!
+### Socials
 
->my git is not regularly updated so if you want me to either change/add or remove you then please contact me either on discord (@/anglwngs.wav) or ponytown
+>discord is stolenbasket.
 
 
 </p>
