@@ -4,9 +4,9 @@
 
 
 
-<p align="center">$\color{#A0BAA4}{\textsf{❀*ੈ.　˚✦　.  ✿ 　　˚　　 ❀　　*　˚　 　❀　✦　˚ 𑁍༘⋆}}$
+<p align="center">$\color{#f7b8cf}{\textsf{❀*ੈ.　˚✦　.  ✿ 　　˚　　 ❀　　*　˚　 　❀　✦　˚ 𑁍༘⋆}}$
    
-<p align="center">$\color{#A0BAA4}{\textsf{˚❀　.　˚　　✦　　✿　.　˚　. 　 ˚　✿.　˚　　❀}}$
+<p align="center">$\color{#f7b8cf}{\textsf{˚❀　.　˚　　✦　　✿　.　˚　. 　 ˚　✿.　˚　　❀}}$
 
 
    <div align="center">
@@ -17,10 +17,10 @@
    <br>
 <p align="left">
 <ins><b><em><tr><td><br>  
-<p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=total+tapes+collected&color=A0BAA4&abbreviated=true"></em></b></ins>
+<p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=monster+souls&color=f7b8cf&abbreviated=true"></em></b></ins>
 
-<a href="https://rentry.co/brutalizeme"><img src="https://i.postimg.cc/SKXHgN74/missed.gif"></a> 
-🠈 basic information about me
+<a href="https://fluffle.cc/bluesand"><img src="https://64.media.tumblr.com/5941eb89139eda5646d6e6fa8f233f32/f1570ea685e21737-64/s250x400/8a267b362bf6ab37d55b600843b68693ac71448b.pnj"></a> 
+🠈 my fluffle
 
 matt and tenna fictkin.
 
