@@ -26,7 +26,7 @@ matt and tenna fictkin.
 
 my interests haunt me like a ghost, always striking me before i even know what's going on
 
-editor, artist, stamp/blinkie maker, timezone is edt.
+editor, artist, stamp/blinkie maker, i love soulvester from dw😛
 
 
 
