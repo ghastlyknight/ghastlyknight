@@ -25,6 +25,6 @@
 $\color{#00a5a5}{\textsf{❝‎ ‎ⁿᵒ ᵐᵃⁿ ᶜᵃⁿ ˢᵃᵛᵉ ᵗʰᵉ ʷᵒʳˡᵈ ,‎ ‎ ‎ ‎ᶦᵗ ᵗᵃᵏᵉˢ ᵃ ʷᵒᵐᵃⁿ ‎ .‎ ❞‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ⟡}}$ 
 
 
-  <p align="center"> <kbd>$\color{#88b69b}{\textsf{dw, aa, ut/dr, corpse party, evilchron fan}}$<br> <br>$\color{#36b798}{\textsf{usually sittin in the old and new dw area, rarely ever in the sth area}}$<br> <br>$\color{#00a5a5}{\textsf{w2i since most of the time, i'm hashtag offtab.}}$<br><br>$\color{#054d75}{\textsf{}}$
+  <p align="center"> <kbd>$\color{#88b69b}{\textsf{dw, aa, ut/dr, corpse party, evilchron fan}}$<br> <br>$\color{#36b798}{\textsf{usually sittin in the old and new dw area, rarely ever in the sth area}}$<br> <br>$\color{#00a5a5}{\textsf{w2i since most of the time, i'm hashtag offtab.}}$<br><br>$\color{#054d75}{\textsf{late replies, so sorry!!}}$<br>$\color{#120e29}{\textsf{}}$<br><br>$\color{#054d75}{\textsf{}}$
  
   <img width="80" height="60" alt="image" src="https://file.garden/aPLawLBv-XUF9Rxm/soulvesstamp"/>
