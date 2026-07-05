@@ -1,6 +1,5 @@
-‎<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tangerine&weight=700&size=35&pause=1000&color=88B69B&width=435&lines=Nothing+will+stop+me+for+this+venture." alt="Typing SVG" /></a>
 <p align="center"> <img width="507" height="507" alt="image" src="https://github.com/user-attachments/assets/9d95760e-21b4-44d0-ae71-0922f2d2c154" />
-<p align="center">$\color{#88b69b}{\textsf{ᛝ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎Sylvester ᵒʳ Lunive.}}$
+‎<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tangerine&weight=700&size=35&pause=1000&color=88B69B&width=435&lines=Nothing+will+stop+me+for+this+venture." alt="Typing SVG" /></a>
    <div align="left">
       <br>
    <div align="center">
@@ -10,9 +9,9 @@
 <p align="left">
 <ins><b><em><tr><td><br>  
 <p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=quests+completed&color=00a5a5&abbreviated=true"></em></b></ins>
-
+<p align="center">$\color{#88b69b}{\textsf{ᛝ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎Sylvester ᵒʳ Lunive.}}$
   <p align="center">$\color{#88b69b}{\textsf{⤷ 　　 ﹒　 　nonbinary mixed artist from the us.}}$
-     <p align="center">$\color{#36b798}{\textsf{minor, THAT one soulvester w/ the dark shading, }}$
+     <p align="center">$\color{#36b798}{\textsf{minor, THAT one soulvester w/ the dark shading, i'm a multishipper beware.}}$
 </p>
 </details>
 <p align="center">$\color{#36b798}{\textsf{‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  infos .q.}}$ 
