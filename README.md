@@ -1,1 +1,1 @@
-<p align="center"> <img width="807" height="734" alt="image" src="https://cdn.discordapp.com/attachments/1325990455908896811/1523128031894306947/ezgif.com-gif-maker_1_1.gif?ex=6a4afb05&is=6a49a985&hm=66a772bb5ede6207698d8d2c617fcea1ba6844bc46c606b2fb26ede5c26dbf53&" />
+<p align="left"> <img width="807" height="807" alt="image" src="https://github.com/user-attachments/assets/9d95760e-21b4-44d0-ae71-0922f2d2c154" />
