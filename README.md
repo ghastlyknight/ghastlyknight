@@ -9,9 +9,9 @@
 <p align="left">
 <ins><b><em><tr><td><br>  
 <p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=quests+completed&color=00a5a5&abbreviated=true"></em></b></ins>
-<p align="center">$\color{#88b69b}{\textsf{ᛝ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎Sylvester ᵒʳ Lunive.}}$
-  <p align="center">$\color{#88b69b}{\textsf{⤷ 　　 ﹒　 　nonbinary mixed artist from the us.}}$
-     <p align="center">$\color{#36b798}{\textsf{minor, THAT one soulvester w/ the dark shading, i'm a multishipper beware.}}$
+<p align="center">$\color{#88b69b}{\textsf{ᛝ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ Sylvester ᵒʳ Lunive.}}$
+  <p align="center">$\color{#36b798}{\textsf{⤷ 　　 ﹒　 　nonbinary mixed artist from the us.}}$
+     <p align="center">$\color{#00a5a5}{\textsf{minor, THAT one soulvester w/ the dark shading, i'm a multishipper beware.}}$
 </p>
 </details>
 <p align="right">$\color{#36b798}{\textsf{infos .‎q. ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  }}$ 
