@@ -1,5 +1,5 @@
-<p align="center"> <img width="507" height="507" alt="image" src="https://github.com/user-attachments/assets/9d95760e-21b4-44d0-ae71-0922f2d2c154" />
-‎<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tangerine&weight=700&size=35&pause=1000&color=88B69B&width=435&lines=Nothing+will+stop+me+for+this+venture." alt="Typing SVG" /></a>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ![gif](https://cdn.discordapp.com/attachments/1325990455908896811/1528742393241665616/ezgif.com-gif-maker_1.gif?ex=6a5f67cd&is=6a5e164d&hm=db70dbed8088d9ea96f6be9e500d83aa55bc1fa1fa3125f00a710f5d9f49e784)
+‎<p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=quests+completed&color=00a5a5&abbreviated=true">
    <div align="left">
       <br>
    <div align="center">
@@ -7,22 +7,5 @@
 <summary></summary>
    <br>
 <p align="left">
-<ins><b><em><tr><td><br>  
-<p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=quests+completed&color=00a5a5&abbreviated=true"></em></b></ins>
-<p align="center">$\color{#88b69b}{\textsf{ᛝ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ Sylvester ᵒʳ Lunive.}}$
-  <p align="center">$\color{#36b798}{\textsf{⤷ 　　 ﹒　 　nonbinary mixed artist from the us.}}$
-     <p align="center">$\color{#00a5a5}{\textsf{minor, THAT one soulvester w/ the dark shading, i'm a multishipper beware.}}$
-</p>
-</details>
-<p align="right">$\color{#36b798}{\textsf{infos .‎q. ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  }}$ 
-<div align="right">
-  <br>
-   <div align="right">
-<details>
-<summary></summary>
-   <br>
-<p align="center">
-$\color{#00a5a5}{\textsf{❝‎ ‎ⁿᵒ ᵐᵃⁿ ᶜᵃⁿ ˢᵃᵛᵉ ᵗʰᵉ ʷᵒʳˡᵈ ,‎ ‎ ‎ ‎ᶦᵗ ᵗᵃᵏᵉˢ ᵃ ʷᵒᵐᵃⁿ ‎ .‎ ❞‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ⟡}}$ 
 
-‎<p align="right"> <kbd>$\color{#88b69b}{\textsf{dw, aa, ut/dr, corpse party, evilchron fan}}$<br> <br>$\color{#36b798}{\textsf{usually sittin in the old and new dw area, rarely ever in the sth area}}$<br> <br>$\color{#00a5a5}{\textsf{w2i since most of the time, i'm hashtag offtab.}}$<br><br>$\color{#054d75}{\textsf{late replies, so sorry!!}}$<br>$\color{#120e29}{\textsf{}}$<br><br>$\color{#054d75}{\textsf{}}$
-  <img width="80" height="50" alt="image" src="https://file.garden/aPLawLBv-XUF9Rxm/soulvesstamp"/>
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![gif](https://media.discordapp.net/attachments/1325990455908896811/1528758825681944669/ezgif.com-gif-maker.gif?ex=6a5f771b&is=6a5e259b&hm=94e64b635e442eff7f7f337cb6f3e83183bef5631baccc05f3b693f1d00d7caf&=&width=124&height=70) under construction... while your still here, have my little stamp :)
